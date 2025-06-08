@@ -9,7 +9,7 @@
 
 - Saat ini sedang mengembangkan Landing Page Ramah [abycat](https://theabycat.com/)
 
-- Hubungi Kami langsung di [https://about.me/awanaslots/](https://about.me/awanaslots/)
+  - Hubungi Kami langsung di [Whatsapp](https://api.whatsapp.com/send?phone=855092488078)
 
 - Update Harian [https://www.pinterest.com/taliyahstones001/](https://www.pinterest.com/taliyahstones001/)
 
